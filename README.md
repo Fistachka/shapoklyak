@@ -32,3 +32,10 @@ Previous lesson:
 ![pexels-mccutcheon-1148998](https://github.com/user-attachments/assets/6acacdaf-7f6e-4c38-a180-5e7e7cd6b39d =200x200)
 stolbitsa.com/fistachka/trava3<br><br>
 
+
+
+![2](https://github.com/user-attachments/assets/7d1a6910-b556-40ee-94b2-01b1dd177bb6)
+![1](https://github.com/user-attachments/assets/34b4f964-103b-4b80-bfaf-d27cb583e22e)
+
+
+
