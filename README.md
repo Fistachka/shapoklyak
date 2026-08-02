@@ -3,7 +3,7 @@
 «Песня Шапокляк» («Кто людям помогает...)  из м/ф "Чебурашка и Крокодил Гена" 1974 г.  1 часть
 ![2](https://github.com/user-attachments/assets/7d1a6910-b556-40ee-94b2-01b1dd177bb6)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/rxXjGS-Lja4" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/-0KLVmNAuZU" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/ziyGewlDDz8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Кто людям помогает –
@@ -26,7 +26,7 @@ stolbitsa.com/fistachka/trava4<br><br>
 "Shapoklyak's Song" ("Who helps people...") from the animated film "Cheburashka and Crocodile Gena" (1974) 1st verse
 ![2](https://github.com/user-attachments/assets/7d1a6910-b556-40ee-94b2-01b1dd177bb6)
 
-<iframe width="315" height="560" src="https://www.youtube.com/embed/mcSrZF_AbzQ" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
+<iframe width="315" height="560" src="https://www.youtube.com/embed/73H2f8WF7lI" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 <iframe width="560" height="315" src="https://www.youtube.com/embed/KADNdndVna8" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share"allowfullscreen></iframe>
 
 Kto lyudyam pomogaet –
